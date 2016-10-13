@@ -10,12 +10,10 @@
 |Opleidingen| |
 |---|:---:|
 |Huidig| Bachelor in de Grafische en Digitale Media|
-
 |Vorig| Professionele Bacholor in Film (Narafi Brussel)|
-
 |Middelbaar| Moderne Talen Wetenschappen (KA Voskenslaan Gent)|
 
 | Hobby's | |
 |-------------|:------------------------------:|
-| |Scouts, momenteel groepsleiding hiervoor 4 jaar leiding geweest |
+| | [Scouts](http://www.scoutswindeke.be), momenteel groepsleiding hiervoor 4 jaar leiding geweest |
 |  |Projection art en live visuals  |
